@@ -1,5 +1,6 @@
 # hw1
 ### This is an yuuu-sa's GitHub
 ***
-![GITHUB](https://images.app.goo.gl/NQNqcHL4BZdjqFhPA)
+
+![nkust](https://github.com/user-attachments/assets/da2ed273-7e7a-479f-b54e-8686f697f991)
 
